@@ -1,8 +1,6 @@
 ## The People in the Trees
 [回到主页](https://boheme130.github.io/Fiction.git.io/)
 ![avatar](https://i.ibb.co/ngzYj5f/54422476-hanya-yanagihara-10120928-the-people-in-the-trees-unabridged-54422476.png)
-<br/>
-
 作品：The People in the Trees <br>
 作者：Hanya Yanagihara<br>
 评分：4.9/5<br>
